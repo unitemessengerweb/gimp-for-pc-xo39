@@ -1,4 +1,4 @@
-# 
+# automatic GIMP for PC | GIMP for Windows Effect | liquify-tool + custom-brushes offers the most advanced GIMP for PC | GIMP for Windows effect, with liquify-tool and
 
 
 
